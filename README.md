@@ -1,1 +1,0 @@
-# kirtasth.github.io
